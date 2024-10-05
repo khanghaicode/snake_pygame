@@ -1,2 +1,2 @@
 # snake_pygame
-# hyen anh xinh gai vai lon
+Ai lại vào xem cái repo này vậy? Bạn yêu tôi à onii-chan baka hentai!!!
